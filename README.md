@@ -2,4 +2,4 @@
 Just links to my 3D-print projects on other sites:
   
   
-https://www.thingiverse.com/magnust/designs
+www.printables.com/social/210199-magnust/models
